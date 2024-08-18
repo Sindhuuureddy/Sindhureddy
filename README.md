@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sindhuuureddy
+- 👀 I’m interested in Java , solving problems 
+- 🌱 I’m currently learning programming languages and dsa
+- 📫 How to reach me www.linkedin.com/in/sindhu-reddy-6320b8300
+- 😄 Pronouns: she/her
